@@ -1,2 +1,2 @@
-# Blockchan X Cyber Security
+# Blockchain X Cyber Security
 It almost sounds sensual
